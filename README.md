@@ -136,5 +136,5 @@
 Всем хорошего вечера. Я отчаливаю.
 
 **P.S.S.**
-Можете ещё у одного челика почитать про эту хуйню.https://github.com/KARENKING112/max-deep-analysis-of-the-messenger?ysclid=mkmgudsrfd860161867 там инфы больше, но уже не так весело.
+Можете ещё у одного челика почитать про эту хуйню.https://github.com/KARENKING112/max-deep-analysis-of-the-messenger?ysclid=mkmgudsrfd860161867 там инфы больше, но уже 99% людей нихуя не пойдут.
 
